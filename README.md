@@ -1,3 +1,4 @@
-# All Rules Provided within the MOTD Below.
-
-<a id="Galactic Duels - Mordhau">[https://discord.gg/mordhau](https://sites.google.com/view/motd12345/home)https://sites.google.com/view/motd12345/home</>
+# All Rules Provided Below.
+* No FFA, Be Respectful To All Players, No Harrassment, Admins word is final.
+* Owners/Admins are Identified with gd. in their username. 
+<a id="Galactic Duels - Discord Server">https://discord.gg/nkdfmUXb</>
